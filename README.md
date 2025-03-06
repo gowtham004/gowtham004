@@ -10,7 +10,7 @@ I am looking to collaborate with experienced developers and mentors who can guid
 
 📫 How to Reach Me
 Email: gowthama3104@gmail.com
-LinkedIn: Your LinkedIn Profile (Add your LinkedIn profile link here)
+LinkedIn: https://www.linkedin.com/in/gowtham-kumar-7292bb1b4/
 ✨ Let's Connect!
 Feel free to reach out to me if you have any exciting opportunities or if you are interested in collaborating on projects. I am always open to new connections and learning experiences.
 
